@@ -1,3 +1,0 @@
-# firstrep
-bad
-okayy
